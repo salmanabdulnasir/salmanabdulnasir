@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @salmanabdulnasir
+- 👋 Hi, I’m Salman Abdul Nasir
 - 👀 I’m interested in work
 - 🌱 I’m currently learning design
 - 💞️ I’m looking to collaborate on any expert 
